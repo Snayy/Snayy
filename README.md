@@ -1,0 +1,3 @@
+- I call him Snayy
+- I am currently learning HTML JS
+- my Solaria RP project
