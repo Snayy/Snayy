@@ -1,3 +1,3 @@
 - I call him Snayy
 - I am currently learning HTML JS
-- my Adastra RP project
+- Developer of Story V
